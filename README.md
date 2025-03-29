@@ -8,6 +8,6 @@ she / they 🦈 18  ⌇  XNTP  ⌇  pisces
 </p>  ⠀
 <p align="center">
 read my strawpage, patreon or pronounscc for info 𐂯
-<p align="center">
+ <p align="center">
 HEAVY shadow milk cookie, astro, twisted glisten, shrimpo, black pearl cookie kinnie
 ⠀⠀⠀ ⠀
