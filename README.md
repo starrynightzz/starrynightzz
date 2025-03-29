@@ -5,6 +5,7 @@
 🪼 bex 𓆩♡𓆪  bea ₒᵣ bibi
 <p align="center">
 she / they 🦈 18  ⌇  XNTP  ⌇  pisces  
+   
  <p align="center">
  read my strawpage, patreon or pronounscc for info 𐂯
 <p align="center">
