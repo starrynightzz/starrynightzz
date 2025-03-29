@@ -5,7 +5,7 @@
 she / they 🦈 18  ⌇  XNTP  ⌇  pisces 
 
    ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-   ![](https://komarev.com/ghpvc/?username=starrynightzz&color=3373C4&style=flat&label=stars)
+   ![](https://komarev.com/ghpvc/?username=starrynightzz&color=1750AC&style=flat&label=stars)
  </p>  ⠀
  <p align="center">
  read my strawpage, patreon or pronounscc for info 𐂯
